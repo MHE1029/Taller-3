@@ -1,3 +1,2 @@
-# Taller-3
-
-HOLA MI CANDAS ❤️❤️❤️❤️❤️❤️❤️❤️❤️
+# TalleR 3
+CANDY SHOW
