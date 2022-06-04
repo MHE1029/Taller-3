@@ -1,2 +1,4 @@
-# TalleR 3
-CANDY SHOW
+# Taller 3
+
+Hernández Encarnación Martin
+Méndez Baltazar Cándido
